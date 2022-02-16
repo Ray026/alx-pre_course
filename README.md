@@ -1,1 +1,1 @@
-_Strong_
+_Strong_ *Weakness*
